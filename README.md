@@ -47,3 +47,7 @@ El objetivo no es tráfico, es generar prospectos:
 Si estás evaluando trabajar con un especialista:
 
 [contratar consultor google ads cdmx](https://joseromero.click/contratar-consultor-google-ads-cdmx/)
+Más información:
+https://www.notion.so/Consultor-Google-Ads-en-M-xico-An-lisis-y-Diagn-stico-32da4bbb4e9d80079b9be9e9707ee9e9?source=copy_link
+
+https://sites.google.com/view/ads-mexico?usp=sharing
